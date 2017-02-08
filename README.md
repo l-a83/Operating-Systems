@@ -1,2 +1,2 @@
 # myTemporary
-This is Laura’s first edit
+This is Laura’s competing edit.
